@@ -1,0 +1,1 @@
+put some rice in a bowl and mix it then add some water mix it more and that is all
